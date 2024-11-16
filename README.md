@@ -1,0 +1,1 @@
+# Ishaki-Azure-Sample
